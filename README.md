@@ -3,15 +3,17 @@
 
 ### A Scientific Essay: Reimagining Energy in Light of the Tanfarid Quantum Thermodynamic Universe (TQTU)
 
----
+Prof. Dr. Md. Faridul Islam Chowdhury, MBBS, MS (Neurosurgery)
+Neurosurgeon | Neuroscientist | Theoretical Cosmologist 
+Founder & Director, Tanfarid Vision Research Institute, Bogura, Bangladesh
+Inventor of the Tanfarid Quantum Thermodynamic Universe (TQTU)
+ORCID: 0000-0003-3178-0671
 
-**Author:** Independent Science Investigator  
-**Date:** February 15, 2026  
+Date:** February 15, 2026  
+
 **Keywords:** Quantum Thermodynamics, Plasma Physics, Entropy Engineering, FQCU, Cosmic Citizenship, Sustainable Energy, TQTU, Farid's Law
 
----
-
-## Introduction: The Limitations of a Tired Civilization
+Introduction: The Limitations of a Tired Civilization
 
 For centuries, human civilization has anchored its energy infrastructure to a single, diminishing resource: fossil fuels. Oil, gas, and coal—the stored sunlight of ancient biological epochs—have powered our industries, transported our bodies, and illuminated our nights. Yet this combustion-dependent model has done more than drive climate catastrophe and geopolitical conflict; it has fundamentally constrained our imagination regarding the universe's actual energy architecture.
 
